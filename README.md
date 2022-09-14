@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **https://www.linkedin.com/in/anirudh-mishra-22sept/**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1mVyBZNZFCVDOWfg7jBIBXGIqhhubMXTK/view?usp=sharing](https://drive.google.com/file/d/1mVyBZNZFCVDOWfg7jBIBXGIqhhubMXTK/view?usp=sharing)
+- 📄 My Resume: [https://drive.google.com/file/d/1mVyBZNZFCVDOWfg7jBIBXGIqhhubMXTK/view?usp=sharing](https://drive.google.com/file/d/1mVyBZNZFCVDOWfg7jBIBXGIqhhubMXTK/view?usp=sharing)
 
 - ⚡ Fun fact **I know everything about football**
 
